@@ -3,7 +3,7 @@
 - 🌱 I am currently studying at Synergy College
 - 💞️ I'm looking for new acquaintances with people
 - 📫 Discord - buharic_nikita  
-- 😄 Pronouns: ?
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I love mountain biking
 
 <!---
